@@ -1,6 +1,4 @@
-#### IASPM UK and Ireland Biennial Conference: Popular Music: Creativity, Practice and Praxis
-
-##### Paper
+#### Paper at “IASPM UK and Ireland Biennial Conference: Popular Music: Creativity, Practice and Praxis”
 
 ##### Table of Contents
 
