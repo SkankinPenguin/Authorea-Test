@@ -2,11 +2,6 @@
 
 ##### Paper
 
-###### Susanne Anders (s.anders1310@icloud.com), University of Salzburg
-
-### Teo’s Brew — The Re-composition of *Bitches Brew* in the Studio
-
-
 ##### Table of Contents
 
 1. Brief introduction to the album _Bitches Brew_
