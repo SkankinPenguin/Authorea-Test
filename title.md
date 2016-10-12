@@ -1,1 +1,1 @@
-Teo's Brew
+Teo’s Brew — The Re-composition of *Bitches Brew* in the Studio
